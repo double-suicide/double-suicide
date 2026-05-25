@@ -1,5 +1,9 @@
 # "For most things in life, it's harder to succeed than fail. Wouldn't you agree? […] That's why I should attempt suicide rather than commit it! Committing suicide is difficult, but it should be relatively easier to fail at attempting suicide!"
 
+*(To Sakunosuke Oda when asked how he got his injuries) "I was walking and reading a book called How to Not Get Hurt Out of the Blue and fell into a drainage ditch. […] I was speeding around a mountain path and drove off the cliff. […] I was trying to kill myself by slamming my head into the corner of a block of tofu."*
+
+(To Sakunosuke Oda when asked how he got his injuries) "I was walking and reading a book called How to Not Get Hurt Out of the Blue and fell into a drainage ditch. […] I was speeding around a mountain path and drove off the cliff. […] I was trying to kill myself by slamming my head into the corner of a block of tofu."
+
 <!--
 **double-suicide/double-suicide** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
