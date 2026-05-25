@@ -1,4 +1,4 @@
-## Hi there 👋
+# "For most things in life, it's harder to succeed than fail. Wouldn't you agree? […] That's why I should attempt suicide rather than commit it! Committing suicide is difficult, but it should be relatively easier to fail at attempting suicide!"
 
 <!--
 **double-suicide/double-suicide** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
